@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jesse-thompson
 - 👀 I’m interested in things
 - 🌱 I’m currently learning stuff
-- 💞️ I’m looking to collaborate on something
+- 💞️ I’m looking to collaborate on collaborations
 - 📫 How to reach me: smoke signals
